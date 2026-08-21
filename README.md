@@ -1,0 +1,1 @@
+# shortery-macos.github.io
